@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Xend3
+- 👀 I’m interested in Xendegi
+- 🌱 I’m currently learning Xendegi
+- 💞️ I’m looking to collaborate on Xendegi
+- 📫 How to reach me xend3@pm.me 
