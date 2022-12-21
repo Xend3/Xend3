@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Xend3
-- 👀 I’m interested in Xendegi
-- 🌱 I’m currently learning Xendegi
-- 💞️ I’m looking to collaborate on Xendegi
-- 📫 How to reach me xend3@pm.me 
+I am XenThe
+I borned as a life, My flag is my Red Blood.
+I borned as a Gen, I am not a gender.
+I borned as a Human, I have no race.
+I borned in Earth, I have no country.
